@@ -9,7 +9,6 @@
 
 - ⚡ Fun fact **Call me as Dassa**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
